@@ -1,2 +1,2 @@
 #资料整理
-![](http://image.baidu.com/search/detail?ct=503316480&z=0&tn=baiduimagedetail&ipn=d&cl=2&cm=1&sc=0&lm=-1&ie=gbk&pn=0&rn=1&di=166373010870&ln=30&word=%D6%AA%BA%F5%CD%B7%CF%F1&os=4037505787,4091851405&cs=2142137248,3036583739&objurl=http%3A%2F%2Fcdn2.image.apk.gfan.com%2Fasdf%2FPImages%2F2014%2F10%2F29%2Fldpi_989747_268a5c762-a3c8-472c-a272-c839646cc821.png&bdtype=0&simid=3427703922,69769928&fr=ala&ori_query=%E7%9F%A5%E4%B9%8E%E5%A4%B4%E5%83%8F&ala=0&alatpl=sp&pos=1)
+![](https://www.baidu.com/img/baidu_jgylogo3.gif)
